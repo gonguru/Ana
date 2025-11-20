@@ -10,7 +10,7 @@ A) Comunicación:
      Compasión: Entendernos sin prejuicios
 
    A.a Ejecución:
-   1. Los temas de pareja se hablaran a solas, sin terceras personas
+   1. Los temas de pareja se hablaran a solas, sin terceras personas. ##(Los trapos sucios se lavan en casa)
    2. Pedir disculpas: ¿Sábemos pedir disculpas?
       - ¿Cómo pedir disculpas?¿Quién debe pedir disculpas?
 
